@@ -1,0 +1,1 @@
+# Gerado-de-curriculos-ATS-Friendly-com-Lovable
